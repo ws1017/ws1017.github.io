@@ -4,7 +4,7 @@
 
 
 
-##### Some StarBucks vocabulary (2019/10/17)
+##### Some Starbucks vocabulary (2019/10/17)
 
 Most people get a good of coffee in the morning to get them ready for brand  new day. When you think of good coffee, Starbucks is a brand that's probably gonna cross your mind. So, today, I will be sharing with you guys some of the most basic terms that you'll need to know if you wanna order a cup of coffee at Starbucks!
 
@@ -35,6 +35,8 @@ soy milk：豆奶
 no foam：不要泡沫
 
 no whipped cream: 不要鲜奶油
+
+Ref : [日常英文单字#4【星巴克咖啡】// English Vocabulary: Starbucks Coffee](https://www.youtube.com/watch?v=KVlYn4Fnd6k)
 
 
 
