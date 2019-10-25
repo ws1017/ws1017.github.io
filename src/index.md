@@ -2,6 +2,8 @@
 
 ### I don’t know tomorrow, but I’m going forward.
 
+##### [体会（20191024）)](/20191024.html)
+
 ##### [肉品(2019/10/22)](/20191022.html)
 
 ##### [The Beast Slayer Story (2019/10/21)](/20191021.html)
