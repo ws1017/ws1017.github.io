@@ -2,7 +2,7 @@
 
 ### I don’t know tomorrow, but I’m going forward.
 
-##### [每个一礼物的卡片](/20191213.html)
+##### [每一个礼物的卡片](/20191213.html)
 
 ##### [安眠药不太好买](/20191211-2.html)
 
